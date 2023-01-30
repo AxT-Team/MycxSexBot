@@ -7,4 +7,9 @@
 
 如果您想要正常使用本插件，请联系我的QQ(1285151)申请KEY，并保证不会使用爬虫等第三方工具.
 
-Power by Mycx_yc，I'm from AxT!
+
+Mycx_yc,来自AxT社区 QQ群号:832275338
+
+社区有众多公益项目，欢迎前来体验
+
+官网:https://www.axtn.net
